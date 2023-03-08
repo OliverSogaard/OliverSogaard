@@ -1,4 +1,4 @@
-**Heyo!** I'm Oliver, 18 and live in Copenhagen, Denmark.
+**Heyo!** I'm Oliver, 19 and live in Copenhagen, Denmark.
 
 My interest are in sports, games and programming! I'm an active swimmer and currently studying in Denmark.
 You can contact me via mail *oliver_sogaard@hotmail.com* or phone at *`+45 2976 3030`*.
